@@ -1,3 +1,3 @@
 # Mika Gobee
 
-![Mika Gobee de student](https://www.google.nl/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwjx75Lr243WAhXLLFAKHdpmDTgQjRwIBw&url=https%3A%2F%2Fwww.deviantart.com%2Ftag%2Fmccree&psig=AFQjCNHTs8bL_EXswBnnrLVrPbo0jenCOA&ust=1504689596379197)
+![Mika Gobee de student](https://img06.deviantart.net/7dba/i/2016/145/2/b/overwatch_mccree_by_lifelessmech-da3qw3x.png)
